@@ -2,8 +2,8 @@
 
 ## Ingredients
 
-- Ingredient 1
-- Ingredient 2
+- Ingredient 1 (Lasgna sheets)
+- Ingredient 2 (tomato sauce with cheese)
 
 
 ## Instructions
